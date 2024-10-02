@@ -1,0 +1,9 @@
+- 👋 Hi, I’m Iza Maryana, S. Pd. 
+- you can call me ma'am Iza
+- I'm an English Teacherof SMPN 2 RABAT
+- My Educational story:
+- SDN Lubuk Rukam 1995-2001
+- SMPN 13 OKU 2021-2003
+- SMAN 1 OKU 2003-2007
+- UNIVERSITAS BATURAJA 2007-2011
+- 
